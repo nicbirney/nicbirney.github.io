@@ -1,0 +1,11 @@
+---
+title: "Journal Entry"
+date: "2023-09-21"
+categories: journal work
+---
+
+It's been a week or so since I've added anything here, so I figured I should try to add something. I haven't decided which way I want to go with this, as I think I might link to this site from LinkedIn, and so I could use my professional robot voice, or I could use my personal voice that I'd usually use in a journal. I mean, it's never going to be as intimate as my actual journal. OK, I have decided to go with the less professional, more "authentic" voice that I'd use talking to close friends. It feels scary and vulnerable, though. I'm going to do it anyway.
+
+In my professional life, I have gotten a promotion, of sorts, to CX Manager. I'm learning about [customer journey mapping](https://blog.hubspot.com/service/customer-journey-map), and man, does it seem _complicated._ My literal and perfectionist brain really wants to write out all of the journies a customer can take, which seems a.) like really hard work and b.) maybe pointless? I know the idea is to map out where a customer starts and where they end so that you can find the points in between where things go wrong, but the narrator in me wants a story. I'm wondering if that's how I start, then morph it into something more useful. Data analysis is interesting, and not at all what I thought it would be. This is the part where I would ask for advice from readers, but I don't have a comments board on this site, nor do I ever intend to. If for some reason you are reading this, and you want to give me advice, feel free to message me on Instagram, I guess?
+
+In my personal life, my grandmother has passed away this past Monday. She was 94, and lived a long, full life, but it's still hard. She is my second grandparent to pass away, but I lived with her for a while so it's hitting me pretty hard, or at least it would be if I let it. I've never thought of myself as emotionally closed off, but I am realizing that for things like this, I really do need to intentionally make space for my grief. Otherwise, it's so easy to push it all down. So tomorrow my idea is, after work, go somewhere with trees and just start writing until the tears come. Wish me luck.
